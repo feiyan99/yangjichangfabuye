@@ -4,10 +4,12 @@
 
 #### 记住我们的永久首页
 
-* [https://养鸡场.com](https://养鸡场.com)
-* [https://孤岛养鸡场.com](https://孤岛养鸡场.com)
+
 
 #### 目前大陆能正常访问地址
+* [https://孤岛养鸡场.com](https://孤岛养鸡场.com)
+
+#### 目前大陆无法正常正常访问地址(需翻墙)
 
 * [https://养鸡场.com](https://养鸡场.com)
 * [https://孤岛养鸡场.com](https://孤岛养鸡场.com)
